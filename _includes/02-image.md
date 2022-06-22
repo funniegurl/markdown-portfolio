@@ -1,1 +1,1 @@
-![Image of Bora Bora] (https://media.audleytravel.com/-/media/images/home/australasia/french-polynesia/places/157420791_bora_bora_3000x1000.jpg)
+![Image of SpongeBob Squarepants] (https://flyclipart.com/thumb2/spongebob-transparent-png-pictures-346987.png)
