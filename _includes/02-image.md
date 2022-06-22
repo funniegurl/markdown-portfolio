@@ -1,1 +1,1 @@
-![Image of SpongeBob Squarepants] (https://flyclipart.com/thumb2/spongebob-transparent-png-pictures-346987.png)
+![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
