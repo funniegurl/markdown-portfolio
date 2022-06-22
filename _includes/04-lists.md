@@ -1,0 +1,11 @@
+❣️ 👍 ✨
+- Packing list:
+  - Toiletries 🧴 🪥 🪒
+  - Makeup bag 💄
+  - Small bills 💸
+  - Wallet 👛
+  - Sunglasses 🕶️ 😎
+- Electronics:
+  - Charging cable 🔌
+  - Kindle 📖
+  - Extra battery 🔋
